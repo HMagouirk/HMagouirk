@@ -3,5 +3,5 @@
 - 🌱 I’m currently studying data analytics.
 - 📫 How to reach me : hramk1@yahoo.com.
 - ⚡ Fun fact: I am an artist/photographer. Check out
-- ✨ hramk1.wixsite.com for an art portfolio and
+- ✨ https://hramk1.wixsite.com/heatherm for an art portfolio and
 - ✨ https://www.viewbug.com/member/hmagouirk for photography
