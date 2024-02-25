@@ -7,4 +7,3 @@
 - ⚡ Fun fact: I am an artist/photographer. Check out
 - ✨ https://hramk1.wixsite.com/heatherm for an art portfolio and
 - ✨ https://www.viewbug.com/member/hmagouirk for photography
-- 
