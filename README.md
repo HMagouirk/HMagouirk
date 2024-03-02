@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @HMagouirk
-- 👀 I’m interested in coding, data analysis, AI, and hacking.
+- 👀 I’m interested in coding, data analysis, AI, and cyber security.
 - 🌱 I am a certified data analyst.
 - 📫 How to reach me : hramk1@yahoo.com.
 - 🔸 https://www.linkedin.com/in/heather-magouirk-1a6492184
